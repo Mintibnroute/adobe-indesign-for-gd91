@@ -1,4 +1,4 @@
-# 
+# Adobe InDesign for macOS premium Filter: export presets & perspective warp offers the most advanced Adobe InDesign for macOS filter, with export presets and perspective warp.
 
 
 
